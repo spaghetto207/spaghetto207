@@ -1,3 +1,6 @@
-the code sometimes makes its way to github
+The code sometimes makes its way to github.
+Currently looking for some sort of coding job opportunity for a 15yr old.
 
-discord @ is spaghetto207
+Contact Info:
+Email : foltzJeremy@protonmail.com
+Discord : spaghetto207
